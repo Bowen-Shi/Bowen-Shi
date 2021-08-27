@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bowen-Shi
+- 👀 I’m interested in economics and finance
+- 🌱 I’m currently learning everything about coding :)
+- 💞️ I’m looking to collaborate on diverse projects and practise my skills
+- 📫 How to reach me: come to visit my Github
